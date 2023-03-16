@@ -1,3 +1,3 @@
-# mayuelala.github.io
+# wuzelin.github.io
 
-https://mayuelala.github.io/
+https://wuzelin98.github.io/
